@@ -505,6 +505,7 @@ You will make users lose trust in many sites, despite there being less than a 1 
 - [fanswong.com](http://fanswong.com)
 - [fantasy8.com](http://fantasy8.com)
 - [fap.to](http://fap.to)
+- [fapjap.com](http://fapjap.com)
 - [fatakat.com](http://fatakat.com)
 - [feedio.net](http://feedio.net)
 - [feedly.com](http://feedly.com)
